@@ -4,7 +4,8 @@ also writer, composer, recorder, mediocre guitar player and terrible keyboard pl
 
 johnnysd [at] gmail [dot] com
 
-![](file:///C:/Users/johnn/AppData/Local/Temp/msohtmlclip1/01/clip_image002.jpg) ![](file:///C:/Users/johnn/AppData/Local/Temp/msohtmlclip1/01/clip_image004.jpg)
+![](file:///MusicCV_files/image002.jpg) 
+![](file:///C:/Users/johnn/AppData/Local/Temp/msohtmlclip1/01/clip_image004.jpg)
 
 Hello, I recently moved to London from Glasgow. Never been a full-time musician, but I've played in bands constantly since I was about 13 (I'm now 35). Will consider anything but ideally looking to join a fun band (reasonably hard working and good as a result, but not overly serious) with paid gigs, but probably no more than 3 per month. Available now. I have a car. References available on request.
 
