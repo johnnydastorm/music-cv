@@ -1,10 +1,11 @@
 # Johnny da Storm -- Drummer
 also writer, composer, recorder, mediocre guitar player and terrible keyboard player
+
 *johnnysd [at] gmail [dot] com*
 
 Hello, I recently moved to London from Glasgow. Never been a full-time musician, but I've played in bands constantly since I was about 13 (I'm now 35). Will consider anything but ideally looking to join a fun band (reasonably hard working and good as a result, but not overly serious) with paid gigs, but probably no more than 3 per month. Available now. I have a car. References available on request.
 
-## 2018-2019     Till Death Do Us Party (function band - occasional depping)
+### 2018-2019     Till Death Do Us Party (function band - occasional depping)
 Depped twice at weddings in St Andrews and Glasgow.
 <https://www.tilldeathdousparty.co.uk/?fbclid=IwAR1uxVs7KsuaCMb7sOvWSMKOuMLVLao_EbrQuzt6HuvoMN5qZ6cSglj9pzM> (not me in the video)
 
