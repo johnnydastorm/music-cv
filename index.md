@@ -3,6 +3,8 @@ also writer, composer, recorder, mediocre guitar player and terrible keyboard pl
 
 *johnnysd [at] gmail [dot] com*
 
+<img src="MusicCV_files/image004.jpg" alt="there should be a picture here" class="inline"/>
+
 Hello, I recently moved to London from Glasgow. Never been a full-time musician, but I've played in bands constantly since I was about 13 (I'm now 35). Will consider anything but ideally looking to join a fun band (reasonably hard working and good as a result, but not overly serious) with paid gigs, but probably no more than 3 per month. Available now. I have a car. References available on request.
 
 ### 2018-2019     Till Death Do Us Party (function band - occasional depping)
