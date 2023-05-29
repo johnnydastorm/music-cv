@@ -1,13 +1,13 @@
-# Johnny da Storm -- Drummer
-also writer, composer, recorder, mediocre guitar player and terrible keyboard player
+# Johnny da Storm -- Drummer etc.
+also writer, composer, recorder, mediocre guitar player, decent singer within a baratone-ish range, and terrible keyboard player
 
 *johnnysd [at] gmail [dot] com*
 
 <img src="MusicCV_files/image004.jpg" alt="there should be a picture here" class="inline"/>
 
-Hello, I recently moved to London from Glasgow. Never been a full-time musician, but I've played in bands constantly since I was about 13 (I'm now 35). I'm looking for paid work in and around London, probably a function band, but I will consider anything. The perfect workload would probably be 3-6 gigs per month but I am adaptable. Available now. I have a car. I have a nice kit. References available on request.
+Hello, I play drums, guitar and I sing. Never been a full-time musician, but I've played in bands constantly since I was about 13 (I'm now 39). Available now. I have a car. I have a nice kit. References available on request.
 
-### 2018-2019     Till Death Do Us Party (function band - occasional depping)
+### 2018-present     Till Death Do Us Party (function band - occasional depping)
 Depped twice at weddings in St Andrews and Glasgow.
 <https://www.tilldeathdousparty.co.uk/?fbclid=IwAR1uxVs7KsuaCMb7sOvWSMKOuMLVLao_EbrQuzt6HuvoMN5qZ6cSglj9pzM> (not me in the video)
 
